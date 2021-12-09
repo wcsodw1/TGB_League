@@ -15,3 +15,9 @@
 + Player Numeber : 33<br>
 + Height : 183cm<br>
 + Weight : 78kg<br>
+<hr/>
+
+<h3>Name : Long-Long </h3> 
++ Player Numeber : <br>
++ Height : 200?cm<br>
++ Weight : 75kg<br>
