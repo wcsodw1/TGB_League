@@ -95,8 +95,7 @@
 
 - [16:42 Air-Ball](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=16m46s)<br>
 - [34:37 Face?](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m37s)<br>
-- [35:04-20 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=35m04s)<br>
-- Jacky 16:46 超帥氣跳投(XDD) 34:40 被打臉(刮痕來源?) 35:05-20 穩穩兩罰<br>
+- [35:04-20 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=35m04s)<br>
 
 <h3>Name : 亞碩 </h3>
 
