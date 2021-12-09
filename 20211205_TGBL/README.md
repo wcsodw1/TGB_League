@@ -17,22 +17,25 @@
 - Height : 177cm<br>
 - Weight : 77kg<br>
 
-[14:15 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m15s)<br>
-[17:55 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=17m55s)<br>
-[18:30 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m30s)<br>
-[19:35 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
-[53:30 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
+#### Personal Hightlight :
+- [14:15 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m15s)<br>
+- [17:55 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=17m55s)<br>
+- [18:30 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m30s)<br>
+- [19:35 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
+- [53:30 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
 
 <hr/>
 <h3>Name : Jim Lee </h3> 
 - Player Numeber : 33<br>
 - Height : 183cm<br>
 - Weight : 78kg<br>
-[0:27 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m27s)<br>
-[0:42 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m42s)<br>
-[1:23 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m23s)<br>
-[1:50 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m50s)<br>
-[3:24 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m24s)<br>
+
+#### Personal Hightlight :
+- [0:27 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m27s)<br>
+- [0:42 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m42s)<br>
+- [1:23 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m23s)<br>
+- [1:50 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m50s)<br>
+- [3:24 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m24s)<br>
 <hr/>
 
 <h3>Name : Long-Long </h3> 
