@@ -1,7 +1,7 @@
-# 1.Full-Game Video : 
+# 1.Full-Game(Youtube)  : 
 [20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 ](https://www.youtube.com/watch?v=uZ5FBY3MQkE)<br>
 
-# 2.The Hightlight of this game : 
+# 2.Hightlight(Youtube) : 
 
 <h3>Name : DavidLin </h3> 
 + Player Numeber : 1<br>
