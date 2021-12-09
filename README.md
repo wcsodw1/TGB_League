@@ -1,5 +1,5 @@
 # TGB_League
-Basketball game with Chun-Yuan-University Electronic Engineering department Teammate 
+Basketball game with Chun-Yuan-University Electronic Engineering department Teammate & our friends.
 
 ### 台北市林籃球館 : 
 UpComing...<br>
