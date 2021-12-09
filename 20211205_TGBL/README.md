@@ -52,15 +52,17 @@
 - Weight : 75kg<br>
 
 #### Personal Hightlight :
-- [1:20 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
-- [5:32 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
-- [7:09 Block & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
-- [14:36 3 Point Shoot](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Steal & Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
+- [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
+- [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
+- [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
+- [28:56 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
 - [36:06 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=36m06s)<br>
 - [53:43 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m47s)<br>
 
 1:24 抄球 5:36抄球 7:13毀掉快攻 14:40快攻 29:00切入反手上籃 36:10 切入反手上籃 53:47 抄球
+<hr/>
+
 ### C.Full-List :
 < 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
 
