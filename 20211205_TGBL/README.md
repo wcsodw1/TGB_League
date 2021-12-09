@@ -28,6 +28,11 @@
 - Player Numeber : 33<br>
 - Height : 183cm<br>
 - Weight : 78kg<br>
+[0:27 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m27s)<br>
+[0:42 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m42s)<br>
+[1:23 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m23s)<br>
+[1:50 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m50s)<br>
+[3:24 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m24s)<br>
 <hr/>
 
 <h3>Name : Long-Long </h3> 
