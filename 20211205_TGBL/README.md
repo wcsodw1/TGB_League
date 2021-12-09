@@ -76,20 +76,18 @@
 #### Personal Hightlight :
 
 - [0:32 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m32s)<br>
-- [4:57 BoxOut Rebond](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=4m57s)<br>
-- [14:28 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m28s)<br>
-- [56:26 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=56m22s)<br>
-- 俊凱 0:32上籃 5:00 nice卡位籃板  14:32 抄球 56:26 三分<br>
+- [5:06 BoxOut Rebond](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m06s)<br>
+- [56:22 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=56m22s)<br>
 
 <h3>Name : 忠諺 </h3>
 
 #### Personal Hightlight :
 
-- [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
-- [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
-- [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
-- [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- [3:29 槍](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m29s)<br>
+- [5:37 Fast-Break Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m37s)<br>
+- [19:33 Assist DavidLin](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m33s)<br>
+- [20:43 Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m43s)<br>
+- [31:27 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=31m27s)<br>
 - 忠諺 3:32 上籃大槍(?!) 5:41快攻上籃 19:37助攻守為 20:47 大籃板 31:27 技犯加罰<br>
 
 <h3>Name : Jacky </h3> 
