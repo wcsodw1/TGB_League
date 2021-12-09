@@ -2,7 +2,7 @@
 
 The Hightlight of this game : 
 
-<h3>DavidLin</h3>
+<h3> + DavidLin : </h3>
 
-[DavidLin Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
-[DavidLin Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
+[Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
+[Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
