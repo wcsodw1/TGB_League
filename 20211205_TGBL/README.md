@@ -3,6 +3,12 @@
 
 # 2.Hightlight(Youtube) : 
 
+### Top 10 : 
+- TOP1-10
+- Make a list of top10
+- Make a film
+- Connect the Link
+
 ### A.List :
 < 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
 
