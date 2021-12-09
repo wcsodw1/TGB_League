@@ -2,10 +2,10 @@
 
 The Hightlight of this game : 
 
-<h3>Name : DavidLin </h3><br>  
+<h3>Name : DavidLin </h3> 
 + Player Numeber : 1<br>
 + Height : 177cm<br>
 + Weight : 77kg<br>
 
-[Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
-[Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
+[19:39 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
+[53:35 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
