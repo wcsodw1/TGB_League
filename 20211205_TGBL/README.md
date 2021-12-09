@@ -15,24 +15,25 @@
 - 榮佐哥 1:24 抄球 5:36抄球 7:13毀掉快攻 14:40快攻 29:00切入反手上籃 36:10 切入反手上籃 53:47 抄球<br>
 - 亞碩 8:00 大火鍋 19:34抄球 27:50切入上籃 40:55 火鍋 42:00 三分 49:37火鍋 52:04 火鍋<br>
 
+<hr/>
 ### B.Player Hightlight :
 <h3>Name : DavidLin </h3> 
-+ Player Numeber : 1<br>
-+ Height : 177cm<br>
-+ Weight : 77kg<br>
+- Player Numeber : 1<br>
+- Height : 177cm<br>
+- Weight : 77kg<br>
 
 [19:39 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
 [53:35 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
 
 <hr/>
 <h3>Name : Jim Lee </h3> 
-+ Player Numeber : 33<br>
-+ Height : 183cm<br>
-+ Weight : 78kg<br>
+- Player Numeber : 33<br>
+- Height : 183cm<br>
+- Weight : 78kg<br>
 <hr/>
 
 <h3>Name : Long-Long </h3> 
-+ Player Numeber : <br>
-+ Height : 200?cm<br>
-+ Weight : 75kg<br>
+- Player Numeber : <br>
+- Height : 200?cm<br>
+- Weight : 75kg<br>
 
