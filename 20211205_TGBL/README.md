@@ -87,16 +87,15 @@
 - [5:37 Fast-Break Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m37s)<br>
 - [19:33 Assist DavidLin](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m33s)<br>
 - [20:43 Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m43s)<br>
-- [31:27 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=31m27s)<br>
-- 忠諺 3:32 上籃大槍(?!) 5:41快攻上籃 19:37助攻守為 20:47 大籃板 31:27 技犯加罰<br>
+- [34:18 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m18s)<br>
 
 <h3>Name : Jacky </h3> 
+
 #### Personal Hightlight :
-- [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
-- [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
-- [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
-- [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+
+- [16:42 Air-Ball](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=16m46s)<br>
+- [34:37 Face?](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m37s)<br>
+- [35:04-20 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=35m04s)<br>
 - Jacky 16:46 超帥氣跳投(XDD) 34:40 被打臉(刮痕來源?) 35:05-20 穩穩兩罰<br>
 
 <h3>Name : 亞碩 </h3>
