@@ -2,7 +2,8 @@
 
 The Hightlight of this game : 
 
-<h3> + DavidLin : </h3>
+<h3> Player Numeber : 1 
+     Name : DavidLin </h3>
 
 [Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
 [Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
