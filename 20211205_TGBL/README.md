@@ -17,12 +17,11 @@
 - Height : 177cm<br>
 - Weight : 77kg<br>
 
-[14:20 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m20s)<br>
-[17:59 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=17m59s)<br>
-[18:30 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m30s)<br>
-[17:33 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m33s)<br>
-[19:39 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
-[53:35 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
+[14:15 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m15s)<br>
+[17:55 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=17m55s)<br>
+[18:30 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m30s)<br>
+[19:35 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m35s)<br>
+[53:30 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m30s)<br>
 
 <hr/>
 <h3>Name : Jim Lee </h3> 
