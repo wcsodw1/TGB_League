@@ -33,12 +33,20 @@
 #### Personal Hightlight :
 - [0:27 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m27s)<br>
 - [0:42 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m42s)<br>
-- [1:23 Steal & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m23s)<br>
-- [1:50 Layup](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m50s)<br>
-- [3:24 Huge Blocks](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m24s)<br>
+- [1:23 Block & Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m23s)<br>
+- [1:50 3 Point Shoot](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m50s)<br>
+- [4:42 Steal & Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=4m42s)<br>
+- [14:34 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m34s)<br>
+- [18:03 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m03s)<br>
+- [32:01 Block & Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=32m01s)<br>
+- [32:41 3 Point Shoot](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=32m41s)<br>
+- [32:59 Shoot](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=32m59s)<br>
+- [40:37 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=40m37s)<br>
+- [53:33 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m33s)<br>
+
 <hr/>
 
-<h3>Name : Long-Long </h3> 
+<h3>Name : Long-Long </h3>  
 - Player Numeber : <br>
 - Height : 200?cm<br>
 - Weight : 75kg<br>
@@ -50,7 +58,7 @@
 - 守為 13:10 抄球 14:20 助攻榮佐哥 17:59助攻岱衛 18:31抄球&助攻岱衛 19:40上籃 22:02助攻亞碩 53:32 火鍋猩猩<br>
 - David 岱衛 18:00 拋投 18:31快攻上籃 20:33 抄球 48:00 罰球 57:30 罰球 58:06 罰球<br>
 - 忠諺 3:32 上籃大槍(?!) 5:41快攻上籃 19:37助攻守為 20:47 大籃板 31:27 技犯加罰<br>
-- 阿信 0:30發球助攻俊凱 0:46麻辣鍋 1:27火鍋 1:55打版三分 3:28抄球 4:42抄球 4:47 籃下投籃 18:05火鍋 32:05大火鍋猩猩 14:32助攻榮佐哥 32:09上籃 32:45 三分 33:05 切入投籃 40:42 切入上籃 53:37 切入上籃<br>
+- 阿信 0:30發球助攻俊凱 0:46麻辣鍋 1:27火鍋 1:55打版三分 3:28抄球 4:42抄球 4:47 籃下投籃 14:34助攻榮佐哥 18:05火鍋 32:05大火鍋猩猩 32:09上籃 32:45 三分 33:05 切入投籃 40:42 切入上籃 53:37 切入上籃<br>
 - Jacky 16:46 超帥氣跳投(XDD) 34:40 被打臉(刮痕來源?) 35:05-20 穩穩兩罰<br>
 - 榮佐哥 1:24 抄球 5:36抄球 7:13毀掉快攻 14:40快攻 29:00切入反手上籃 36:10 切入反手上籃 53:47 抄球<br>
 - 亞碩 8:00 大火鍋 19:34抄球 27:50切入上籃 40:55 火鍋 42:00 三分 49:37火鍋 52:04 火鍋<br>
