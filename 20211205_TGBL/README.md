@@ -77,7 +77,7 @@
 #### Personal Hightlight :
 
 - [0:32 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m32s)<br>
-- [5:06 BoxOut Rebond](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m06s)<br>
+- [5:06 BoxOut Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m06s)<br>
 - [56:22 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=56m22s)<br>
 <hr/>
 
@@ -88,7 +88,7 @@
 - [3:29 槍](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=3m29s)<br>
 - [5:37 Fast-Break Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m37s)<br>
 - [19:33 Assist DavidLin](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m33s)<br>
-- [20:43 Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m43s)<br>
+- [20:43 Big Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m43s)<br>
 - [34:18 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m18s)<br>
 <hr/>
 
