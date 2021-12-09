@@ -95,7 +95,9 @@
 - [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
 
 <h3>Name : 亞碩 </h3>
+
 #### Personal Hightlight :
+
 - [7:56 Hugr-Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m56s)<br>
 - [19:30 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m30s)<br>
 - [27:46 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=27m46s)<br>
