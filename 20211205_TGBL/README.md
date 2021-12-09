@@ -56,15 +56,15 @@
 - [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
 - [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
 - [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
-- [36:06 Assist](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=36m06s)<br>
+- [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- [36:06 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=36m06s)<br>
 - [53:43 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m47s)<br>
 
 1:24 抄球 5:36抄球 7:13毀掉快攻 14:40快攻 29:00切入反手上籃 36:10 切入反手上籃 53:47 抄球
 <hr/>
 
 ### C.Full-List :
-< 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
+#### < 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
 
 - 俊凱 0:32上籃 5:00 nice卡位籃板  14:32 抄球 56:26 三分<br>
 - 守為 13:10 抄球 14:20 助攻榮佐哥 17:59助攻岱衛 18:31抄球&助攻岱衛 19:40上籃 22:02助攻亞碩 53:32 火鍋猩猩<br>
