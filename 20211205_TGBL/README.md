@@ -59,17 +59,18 @@
 - [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
 - [36:06 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=36m06s)<br>
 - [53:43 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=53m47s)<br>
-
 <hr/>
 
 <h3>Name : David 岱衛 </h3>
+
 #### Personal Hightlight :
-- [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
-- [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
-- [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
-- [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
-- David 岱衛 18:00 拋投 18:31快攻上籃 20:33 抄球 48:00 罰球 57:30 罰球 58:06 罰球<br>
+- [17:56 float](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=17m56s)<br>
+- [18:27 Fast-Break Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=18m27s)<br>
+- [20:29 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m29s)<br>
+- [47:56 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=47m56s)<br>
+- [57:26 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=57m26s)<br>
+- [58:02 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=58m02s)<br>
+<hr/>
 
 <h3>Name : 俊凱 </h3>
 
@@ -78,6 +79,7 @@
 - [0:32 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m32s)<br>
 - [5:06 BoxOut Rebond](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m06s)<br>
 - [56:22 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=56m22s)<br>
+<hr/>
 
 <h3>Name : 忠諺 </h3>
 
@@ -88,14 +90,16 @@
 - [19:33 Assist DavidLin](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m33s)<br>
 - [20:43 Rebound](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=20m43s)<br>
 - [34:18 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m18s)<br>
+<hr/>
 
 <h3>Name : Jacky </h3> 
 
 #### Personal Hightlight :
 
-- [16:42 Air-Ball](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=16m46s)<br>
+- [16:42 Air-Ball](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=16m42s)<br>
 - [34:37 Face?](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=34m37s)<br>
 - [35:04-20 Free Throw](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=35m04s)<br>
+<hr/>
 
 <h3>Name : 亞碩 </h3>
 
@@ -108,6 +112,7 @@
 - [41:55 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=41m55s)<br> 
 - [49:33 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=49m33s)<br>
 - [52:00 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=52m00s)<br> 
+<hr/>
 
 ### C.Full-List :
 #### < 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
