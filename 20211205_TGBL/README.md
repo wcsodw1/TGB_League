@@ -69,22 +69,28 @@
 - [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
 - [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
 - [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- David 岱衛 18:00 拋投 18:31快攻上籃 20:33 抄球 48:00 罰球 57:30 罰球 58:06 罰球<br>
 
 <h3>Name : 俊凱 </h3>
+
 #### Personal Hightlight :
-- [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
-- [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
-- [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
-- [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
-- [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+
+- [0:32 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=0m32s)<br>
+- [4:57 BoxOut Rebond](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=4m57s)<br>
+- [14:28 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m28s)<br>
+- [56:26 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=56m22s)<br>
+- 俊凱 0:32上籃 5:00 nice卡位籃板  14:32 抄球 56:26 三分<br>
 
 <h3>Name : 忠諺 </h3>
+
 #### Personal Hightlight :
+
 - [1:20 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=1m20s)<br>
 - [5:32 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=5m32s)<br>
 - [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
 - [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
 - [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- 忠諺 3:32 上籃大槍(?!) 5:41快攻上籃 19:37助攻守為 20:47 大籃板 31:27 技犯加罰<br>
 
 <h3>Name : Jacky </h3> 
 #### Personal Hightlight :
@@ -93,18 +99,19 @@
 - [7:09 Break Fast-Break](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m09s)<br>
 - [14:36 3 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=14m36s)<br>
 - [28:56 Reverse Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=28m56s)<br>
+- Jacky 16:46 超帥氣跳投(XDD) 34:40 被打臉(刮痕來源?) 35:05-20 穩穩兩罰<br>
 
 <h3>Name : 亞碩 </h3>
 
 #### Personal Hightlight :
 
-- [7:56 Hugr-Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m56s)<br>
+- [7:58 Hugr-Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=7m58s)<br>
 - [19:30 Steal](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=19m30s)<br>
 - [27:46 Lay-Up](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=27m46s)<br>
 - [40:55 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=40m55s)<br>
-- [42:00 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=42m00s)<br> 
-- [49:33 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=40m55s)<br>
-- [52:00 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=42m00s)<br> 
+- [41:55 3 Point](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=41m55s)<br> 
+- [49:33 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=49m33s)<br>
+- [52:00 Block](https://www.youtube.com/watch?v=uZ5FBY3MQkE#t=52m00s)<br> 
 
 ### C.Full-List :
 #### < 20211205 TGB和平大安週日聯盟C6組 金色小旋風 vs 康潔美牙醫 >
