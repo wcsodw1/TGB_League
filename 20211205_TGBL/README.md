@@ -10,8 +10,6 @@
 - Connect the Link
 <hr/>
 
-
-
 ### B.Player Hightlight :
 <h3>Name : DavidLin </h3> 
 - Player Numeber : 1<br>
